@@ -19,7 +19,7 @@
 - Capture The Flag (CTF) teams or labs
 
 📫 How to reach me:
-- LinkedIn: [Adam Attafi](https://www.linkedin.com/in/adam-attafi/)
+- LinkedIn: [Adam Attafi](https://www.linkedin.com/in/adam-attafi-5a567a229/)
 
 ⚡ Fun fact: I love breaking stuff — but only to make it stronger 💥🧠
 
